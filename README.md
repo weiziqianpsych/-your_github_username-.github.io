@@ -1,1 +1,1 @@
-# weiziqianpsych.github.io
+# weiziqian.github.io
